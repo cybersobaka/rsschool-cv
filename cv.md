@@ -8,7 +8,7 @@
 - *Address:  Prospect Mira street, Moscow, 140150*
 - *Telephone: +7 923 172 67 71*
 - *E-mail: reneisama@gmail.com*
-- *Discord nickname: @renei*
+- *Discord nickname: @renei7132*
 ---
 ### Education
 
